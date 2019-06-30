@@ -1,4 +1,4 @@
-###Lords of Hellas is a fantastic game, and I highly suggest using this make in combination with other box organizers made by folks like peloquin17.
+Lords of Hellas is a fantastic game, and I highly suggest using this make in combination with other box organizers made by folks like peloquin17.
 
 The one challenge I found is: I sleeve all my cards, and Awaken Realms doesn't account for this with their tray structure. However, if you turn the majority of the cards vertically, instead of laying them horizontally, we can fit everything in the base box (when combined with some other organizers like I mentioned above.
 
